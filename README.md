@@ -1,1 +1,0 @@
-# pukul-tikus-tanah
